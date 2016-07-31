@@ -118,5 +118,11 @@ Freitag, 26. – 28. August 2016  |  ab 20.00 Uhr  |  Bäckeranlage  |
 
 [https://www.instagram.com/p/6sh67vSYwy/](https://www.instagram.com/p/6sh67vSYwy/)
 
+## Eröffnung Pavilleon
+
+Das Stadtlabor namens Pavilleon feiert seine Eröffnung. | Sonntag 28. August | Werdmühleplatz | Weitere Informationen folgen auf Facebook.
+
+[https://www.facebook.com/pavilleon/photos/a.144216499318649.1073741827.144213955985570/156042408136058/?type=3)
+
 # Lizenz
 <a rel="license" href="http://creativecommons.org/licenses/by-nc-sa/4.0/"><img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by-nc-sa/4.0/88x31.png" /></a><br />This work is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-nc-sa/4.0/">Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License</a>.
